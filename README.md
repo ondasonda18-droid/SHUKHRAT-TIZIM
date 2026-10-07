@@ -1,0 +1,2 @@
+# SHUKHRAT-TIZIM
+Xodimlar tabeli
